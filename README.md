@@ -1,6 +1,6 @@
 # Hello-London-Tech-Community
 
 
-Want to be part of an ever-growing community of technology folk, with a focus on knowledge sharing, best practice methodologies and all things tech?
+Want to be part of an ever-growing community of technology folk? 
 
-Join us today @ https://www.meetup.com/techsauce/
+For knowledge sharing, networking and all things tech - join us today @ https://www.meetup.com/techsauce/
